@@ -1,4 +1,4 @@
-
+Get the ultimate Hide.me client with ultra-secure Hide.me Client | IP-masking + multi-device-support. Featuring IP-masking and multi-device-support, it's the best choice for
 
 
 
